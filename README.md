@@ -1,1 +1,0 @@
-# ALPRO_FaiqJagadhitaHardiana_103112430015
